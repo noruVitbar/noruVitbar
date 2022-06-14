@@ -1,1 +1,1 @@
-Desenvolvedor de mods para minecraft e outras coisas
+Minecraft mod developer and html developer
